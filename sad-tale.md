@@ -3,4 +3,5 @@ Winterfell, Warden of the North, Hand of the King, Protector of the Realm,
 Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Ned Stark went to King's landing where he made lots of friends and lived
-happily ever after...  He sadly was murdered with an axe.
+happily ever after...  The Lanisters were fed to the direwolves, but they
+disagreed with the direwolves' digestion and were immediately spit out.
