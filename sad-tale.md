@@ -8,3 +8,6 @@ overthrowing Joffrey Baratheon, who was actually Jaime Lanister's son.
 And then he lived happily ever after...  The Lanisters were fed to the
 direwolves, but they disagreed with the direwolves' digestion and were
 immediately spit out.
+
+Oh, and before I forget, there was some story about some "zombies" from
+the North, but nothing ever really came of that.
